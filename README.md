@@ -1,2 +1,1 @@
 # StarsofSTR
-MUTTON BIRYANI
